@@ -2,7 +2,7 @@
 
 ## Ulrich Jahn
 
-! [Stesticko](https://cdn6.dissolve.com/p/D1083_23_014/D1083_23_014_0004_600.jpg)
+! [Stesticko obrázok](https://cdn6.dissolve.com/p/D1083_23_014/D1083_23_014_0004_600.jpg)
 
 Jednou se rozum vydal na cestu se štěstím a takto si rozumoval: „Komu pomáhám, tomu se dobře daří.“ „To by se muselo vyzkoušet.“ opáčilo štěstí, což vedlo k vádě a hašteření, když tu se jim nachomýtl do rány selský synek, který tam se dvěma kravami oral pole. „Ten hoch se mi líbí!“ zvolal rozum: „Co myslíš, štěstí, kdybychom si ho vyzkoušeli?“ Štěstí spokojeně mlasklo, a tak rozum, který má vždy navrch a ustavičně chce být ten první, vpadl hochovi do zad tak prudce, že písnička, kterou si do té chvíle jen tak pro sebe pískal, jak už si tak rolníci při práci pískají, vzala za konec, hoch se zarazil a zamyšleně pozoroval brázdy. Tu viděl, že jedna je rovná a přímá jako druhá, a kdo umí orat, dobře ví, co to znamená, aby jeden uměl brázdy jako střižené. „Hochu, hochu“ pomyslel si: „jsi ještě tak mladý a už umíš tak výtečně orat? Na sedláka je tě škoda!“ A čile vypřáhl krávy a obrátil zpět k domovu na dvůr. „Matko,“ řekl: „být sedlákem to není nic pro mne, chci do města a vyučit se řemeslu.“ Jeho matka ale byla vdova a hoch její jediný syn a opora a dědic statku, a tak řekla na ta slova rozzlobeně: „Kdo ti nasadil takového pavouka do hlavy? Ihned se vrátíš na pole a nepřijdeš mi na oči před večerem!“ Hoch nakonec poslechl a svoji práci vykonal.
 
